@@ -12,7 +12,7 @@ https://verifier.ton.org/EQBARQjzu8ZnTzJJMXlDqrnaZ-CH_nrV2XbzL28l6-p8xNo9
 https://grandtonape.life
 
 ## Community
-https://t.me/GrandTonApe
+https://t.me/gtaonton
 
 ## X (Twitter)
 https://x.com/GrandTonApe
